@@ -7,6 +7,6 @@ John Forbes Nash, 1950, "The Bargaining Problem", Econometrica
 
 Edit: A lot of you need to learn how to mind your own business. 
 
-Edit2: That said, I am very open to collaboration here as well. Lots of love everyone. <3
+Edit2: That said, I am very open to future collaboration here as well. Lots of love everyone. <3
 
 
